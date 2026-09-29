@@ -1,2 +1,2 @@
 # First-repo
-Be the one who you are
+Be that who you are
